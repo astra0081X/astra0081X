@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @astra0081X.
+- 👀 I’m interested in cybersecurity.
+- 🌱 I’m currently learning web penetration.
+- 💞️ I’m looking to collaborate on minetest.
+- 📫 XMPP: carbineX@conversations.im. Discord: "astra008.".
+- ⚡ Looking forward to work with passionate people.
