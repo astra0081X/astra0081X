@@ -2,5 +2,5 @@
 - 👀 I’m interested in cybersecurity.
 - 🌱 I’m currently learning about web penetration testing.
 - 💞️ I’m looking to collaborate on minetest.
-- 📫 XMPP: carbineX@conversations.im. Discord: "astra008.".
+- 📫 XMPP: carbineX@conversations.im. Discord: "astra0081.". Matrix: "astra0081."
 - ⚡ Looking forward to work with passionate people.
